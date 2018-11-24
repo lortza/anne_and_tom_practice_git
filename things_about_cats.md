@@ -10,6 +10,8 @@ Here are all of the cats from New Orleans in alphabetical order:
 * Manny
 * Thor
 * Loki
+* Pork Chop
+* Pickles
 
 ## Cat Whispering
 Cats are not all that hard to understand. If you imagine them as very independent adult humans who choose to spend time with you, your feline relationships will improve greatly. Here are some other tips.
