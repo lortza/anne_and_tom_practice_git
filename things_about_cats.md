@@ -1,6 +1,6 @@
 # Catz Are Awesome
 
-Chances are you disagree, but you'd be wrong about that. Tough nuggets.
+Cats Are Awesome. Chances are you disagree, but you'd be wrong about that. Tough nuggets. The internet loves cats and the internet is never wrong about anything ever.
 
 ## Alpha Cats
 Here are all of the cats from New Orleans in alphabetical order:
